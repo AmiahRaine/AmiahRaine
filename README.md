@@ -1,4 +1,4 @@
-- 👋 Hi, I’m [@AmiahR](https://github.com/AmiahR)
+- 👋 Hi, I’m [@AmiahRaine](https://github.com/AmiahRaine)
 - 🌐 My website: [amiah.dev](https://amiah.dev)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- 📖 Fun fact: I speak both English and Français!
