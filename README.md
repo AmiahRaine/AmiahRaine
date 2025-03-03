@@ -1,0 +1,4 @@
+- 👋 Hi, I’m [@AmiahR](https://github.com/AmiahR)
+- 🌐 My website: [amiah.dev](https://amiah.dev)
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: ...
